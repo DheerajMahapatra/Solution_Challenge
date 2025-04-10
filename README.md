@@ -1,9 +1,5 @@
 # Solution_Challenge
 ManahSthiti – Your Safe Space
-# Solution_Challenge
-ManahSthiti – Your Safe Space
-# Solution_Challenge
-ManahSthiti – Your Safe Space
 
 # 💙 ManahSthiti — Your Mental Health Companion
 
